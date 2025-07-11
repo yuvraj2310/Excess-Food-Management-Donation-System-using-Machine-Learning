@@ -98,5 +98,5 @@ This system aims to tackle the issue of increasing food wastage, especially in h
 
 
 ## Contact
-- For any queries, please contact us at: yuvrajsathe2801@email.com
+- For any queries, please contact us at: yuvrajsathe2801@gmail.com
 
